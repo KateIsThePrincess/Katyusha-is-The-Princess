@@ -1,2 +1,1 @@
-# Katyusha-is-The-Princess
-This site created for my wife
+Сайт создан для самой прекрасной и невероятной девушки, по имени Катюша!
